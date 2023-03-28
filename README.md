@@ -8,3 +8,5 @@ may Allah help us all
 
 !!! Don't forget
 Your small contribution may have a large impact on the project. 
+
+inshallah that is very interesting idea .
